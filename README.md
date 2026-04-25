@@ -7,7 +7,10 @@
 </p>
 
 <p align="center">
-${\color{#F4A6F0}C \space +\space H⠀ok!}$
+${\color{#F4A6F0}Copy \space + \space Inspo \space + \space C \space + \space H \space \space⠀ok!}$
+</p>
+<p align="center">
+${\color{#F4A6F0}Whisper \space 2 \space interact \space please!}$ <img src="https://64.media.tumblr.com/9ea495916afd33fdc2e0fbc2e6588469/296c577c953672b3-7d/s75x75_c1/dc5f49faf2a94371526747294cc4b557c578c66d.gifv" alt="Pee">
 </p>
 
 <p align="center">
